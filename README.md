@@ -1,0 +1,2 @@
+# thumai
+like wind
